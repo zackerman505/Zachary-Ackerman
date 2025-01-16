@@ -1,2 +1,2 @@
-# Zachary-Ackerman
+# Zachary-Ackerman Aspiring Business Analyst
 Zachary Ackerman
